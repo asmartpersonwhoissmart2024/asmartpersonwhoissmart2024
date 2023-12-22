@@ -1,6 +1,6 @@
 👋 Hi, I’m @asmartpersonwhoissmart2024
 👀 I’m interested in coding games and projects.
-🌱 I’m currently learning HTML, JAVASCRIPT, CSS, ETC.
+🌱 I’m currently learning HTML, JAVASCRIPT, CSS, PYTHON, ETC.
 💞️ I’m looking to collaborate on some very big projects.
 📫 You can reach me by following me and messaging or if you play Roblox, my username is TheBabydksjdnfn (I know that username is ridiculous) and just friend request me, I will receive it, and text you back and forth. That simple. You may also use Discord to contact me. My username is ishanb_26545. THE END.
 
